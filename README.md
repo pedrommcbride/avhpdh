@@ -3,16 +3,17 @@
 这里汇总仓库内已经发布的内容，可按分类逐层浏览。
 
 <!-- gitflow:articles:start -->
-共收录 **9** 篇内容，按 **1** 个分类整理。
+共收录 **10** 篇内容，按 **1** 个分类整理。
 
 ## 分类导航
 
 | 分类 | 文章数 | 索引 |
 | --- | ---: | --- |
-| 加拿大pc28预测 | 9 | [查看分类文章](category-%E5%8A%A0%E6%8B%BF%E5%A4%A7pc28%E9%A2%84%E6%B5%8B.md) |
+| 加拿大pc28预测 | 10 | [查看分类文章](category-%E5%8A%A0%E6%8B%BF%E5%A4%A7pc28%E9%A2%84%E6%B5%8B.md) |
 
 ## 最近发布
 
+- [2026年10月王牌预测:亚冠足球预测推荐今日-云域财经](https://github.com/pedrommcbride/avhpdh/blob/main/2026%E5%B9%B410%E6%9C%88%E7%8E%8B%E7%89%8C%E9%A2%84%E6%B5%8B-%E4%BA%9A%E5%86%A0%E8%B6%B3%E7%90%83%E9%A2%84%E6%B5%8B%E6%8E%A8%E8%8D%90%E4%BB%8A%E6%97%A5-%E4%BA%91%E5%9F%9F%E8%B4%A2%E7%BB%8F.md) · 加拿大pc28预测 <!-- gitflow:article:0cb00eb92f12978305f309e0193509a8e3afc12163ec1d2adac78abd1415ada1 -->
 - [2026年10月终局前瞻预测:即时比分\_比分直播\_足球比分\_足球即时比分-捷报比分-支点财经](https://github.com/pedrommcbride/avhpdh/blob/main/2026%E5%B9%B410%E6%9C%88%E7%BB%88%E5%B1%80%E5%89%8D%E7%9E%BB%E9%A2%84%E6%B5%8B-%E5%8D%B3%E6%97%B6%E6%AF%94%E5%88%86_%E6%AF%94%E5%88%86%E7%9B%B4%E6%92%AD_%E8%B6%B3%E7%90%83%E6%AF%94%E5%88%86_%E8%B6%B3%E7%90%83%E5%8D%B3%E6%97%B6%E6%AF%94%E5%88%86-%E6%8D%B7%E6%8A%A5%E6%AF%94%E5%88%86-%E6%94%AF%E7%82%B9%E8%B4%A2%E7%BB%8F.md) · 加拿大pc28预测 <!-- gitflow:article:62cb83e855b755b21f22832f6401eaf478005748af8ce5cae0194cc3ec5d1e73 -->
 - [2026年10月权威深度预测:今日赛事足球推荐-云台财经](https://github.com/pedrommcbride/avhpdh/blob/main/2026%E5%B9%B410%E6%9C%88%E6%9D%83%E5%A8%81%E6%B7%B1%E5%BA%A6%E9%A2%84%E6%B5%8B-%E4%BB%8A%E6%97%A5%E8%B5%9B%E4%BA%8B%E8%B6%B3%E7%90%83%E6%8E%A8%E8%8D%90-%E4%BA%91%E5%8F%B0%E8%B4%A2%E7%BB%8F.md) · 加拿大pc28预测 <!-- gitflow:article:0fe74907625433cf46589271775d7dba1ec506f9d1fd869b461f563a14453cfe -->
 - [2026年10月精选趋势预测:今日足球推荐日职-永盛财经](https://github.com/pedrommcbride/avhpdh/blob/main/2026%E5%B9%B410%E6%9C%88%E7%B2%BE%E9%80%89%E8%B6%8B%E5%8A%BF%E9%A2%84%E6%B5%8B-%E4%BB%8A%E6%97%A5%E8%B6%B3%E7%90%83%E6%8E%A8%E8%8D%90%E6%97%A5%E8%81%8C-%E6%B0%B8%E7%9B%9B%E8%B4%A2%E7%BB%8F.md) · 加拿大pc28预测 <!-- gitflow:article:d8a255ea8d7b604573336afa890b618dcb81a6ba0ba97a4149352926a62713ec -->
